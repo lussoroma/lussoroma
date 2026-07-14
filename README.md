@@ -1,5 +1,7 @@
 # Lusso Roma
 
+<img width="1983" height="793" alt="Panorama di Roma al crepuscolo" src="https://github.com/user-attachments/assets/07fbc581-e495-4514-b535-92c55eea2316" />
+
 ### Stile, cultura urbana e discrezione nella capitale
 
 Roma non si lascia conoscere in fretta. È una città fatta di contrasti: palazzi severi e terrazze leggere, quartieri storici e nuovi rituali urbani, eleganza studiata e spontaneità quotidiana. **Lusso Roma** nasce per raccontare questa dimensione con uno sguardo editoriale, contemporaneo e rispettoso della vita privata.
